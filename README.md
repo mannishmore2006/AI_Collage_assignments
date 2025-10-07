@@ -1,0 +1,1 @@
+# AI_Collage_assignments
